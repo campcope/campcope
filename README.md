@@ -1,4 +1,4 @@
-i'm pill or pillie. adult.
+angel. genderqueer adult.
 <br>
 i'm chronically ill/fatigued in a way that limits a lot of things for me.
 i only come on here to make ponies.
