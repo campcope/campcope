@@ -7,6 +7,7 @@
 <br><img src="https://komarev.com/ghpvc/?username=fibropilled&base=8000&color=5dd6a5&label=PILLS%20TAKEN:">
 <br><br>pokemon.  pizzatower.   antonblast.
 <br>finalfantasy. stardewvalley. touhou.
+<br>pokerface. russiandoll.
 <br>philosophy & internet anthropology.
 </h5>under 18 dni. no exceptions. 
 <br><br><br><br><br></font>
