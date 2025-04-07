@@ -8,7 +8,7 @@
 <br><br>pokemon.  pizzatower.   antonblast.
 <br>finalfantasy. stardewvalley. touhou.
 <br>pokerface. russiandoll.
-<br>philosophy & internet anthropology.
+<br>philosophy & art history.
 </h5>under 18 dni. no exceptions. 
 <br><br><br><br><br></font>
 
