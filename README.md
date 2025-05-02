@@ -5,4 +5,6 @@ under 18 dni unless just crowning skins.
 <p></p>
   <details><summary> ext. </summary>
 <br>may come off a little bit pretentious sometimes! i'm an art geek, it is a given :p.
+<p></p>
+    physically cursed (disabled) and also chronically in pain most of the time. 👎👎 booooo. 
 </details> </div>
