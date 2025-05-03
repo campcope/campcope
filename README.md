@@ -11,9 +11,11 @@ under 18 dni unless just crowning skins.
 <details><summary> currently playing. </summary>
 <br><b>games:</b> octopath traveller 2. final fantasy x/x-2.
     anton blast. 
+    <p></p>
     <b>reading:</b> what my bones know. stone butch blues. 
-    facists among us.
-    <b>watching:</b> waiting for pokerface season 2z
+    facists among us. essays in love.
+      <p></p>
+    <b>watching:</b> waiting for pokerface season 2 :))
 <p></p>
 </details>
 </div>
