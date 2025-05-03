@@ -7,4 +7,14 @@ under 18 dni unless just crowning skins.
 <br>may come off a little bit pretentious sometimes! i'm an art geek, it is a given :p.
 <p></p>
     physically cursed (disabled) and also chronically in pain most of the time. 👎👎 booooo. 
-</details> </div>
+</details> 
+<details><summary> currently playing. </summary>
+<br><b>games:</b> octopath traveller 2. final fantasy x/x-2.
+    anton blast. 
+    <b>reading:</b> what my bones know. stone butch blues. 
+    facists among us.
+    <b>watching:</b> waiting for pokerface season 2z
+<p></p>
+</details>
+</div>
+
