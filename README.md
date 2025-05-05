@@ -10,12 +10,8 @@ under 18 dni unless just crowning skins.
 </details> 
 <details><summary> currently playing. </summary>
 <br><b>games:</b> octopath traveller 2. final fantasy x/x-2.
-    anton blast. 
+    stardew valley. 
     <p></p>
-    <b>reading:</b> what my bones know. stone butch blues. 
-    facists among us. essays in love.
-      <p></p>
-    <b>watching:</b> waiting for pokerface season 2 :))
 <p></p>
 </details>
 </div>
