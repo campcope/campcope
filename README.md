@@ -1,7 +1,7 @@
-<div align="center"> <img src="https://files.catbox.moe/s6p0tp.gif"> pillie <i>or</i> paz.
-<img align="left" src="https://files.catbox.moe/n7ud2g.gif" width="100" align="center"> <br> 20↑ — itshe, infj.
-<p></p>
+<div align="center"><img src="https://files.catbox.moe/cqxmh8.gif"><img align="left" src="https://files.catbox.moe/n7ud2g.gif" width="140" align="center"> <br><br><br> <img src="https://files.catbox.moe/dmariv.ico"> pillie <i>or</i> paz.
+<br> 20↑ — itshe, infj.
 <b>under 18 dni. </b>
+<img src="https://files.catbox.moe/web4q7.gif">
 <p></p>
   <details><summary> ext. </summary>
 <br>may come off a little bit pretentious sometimes! i'm an art geek, it is a given :p.
