@@ -3,7 +3,7 @@
 <br><b>under ‎‎ ‎  18 ‎ ‎ dni. </b>
 <br><br><a href="https://backloggd.com/u/campcope" title="backloggd">backloggd.</a> ʚїɞ <a href="https://rentry.co/campcope"> rentry.</a> ʚїɞ <a href="https://pill.atabook.org/">ata.</a>
 <br> <details><summary> ext. </summary>
-may come off a bit pretentious sometimes! oopsie... <br><img src="https://files.catbox.moe/4hrh7b.gif"> disabled & mobility aid user.
+may come off a bit pretentious<br>sometimes! oopsie... i'm just very passionate.<br><img src="https://files.catbox.moe/4hrh7b.gif"> disabled & mobility aid user.
     <p></p>
 <p></p>
 </details>
