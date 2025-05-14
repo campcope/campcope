@@ -9,7 +9,7 @@ disabled & mobility aid user.
 may come off a bit pretentious
 sometimes! oopsie... i'm just 
 passionate about the world.
-
+<br>
 you can take insp from my
 ponies ^^ it is quite 
 flattering. just no colour
